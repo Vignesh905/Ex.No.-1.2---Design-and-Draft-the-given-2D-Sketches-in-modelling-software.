@@ -36,6 +36,8 @@
  ![image](https://user-images.githubusercontent.com/113594316/198233336-dd9f5c19-481b-486a-928a-99c32a732f89.png)
 
  ## OUTPUT
+ ![EDM EXPT NO_1 2 Vignesh_page-0001](https://github.com/user-attachments/assets/c96d2c4b-66ea-4fb5-ad5b-f588b77bf740)
+
  
  
  ## RESULT
